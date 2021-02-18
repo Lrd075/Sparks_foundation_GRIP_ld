@@ -1,1 +1,0 @@
-# Sparks_foundation_GRIP_ld
